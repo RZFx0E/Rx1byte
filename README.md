@@ -12,11 +12,11 @@ Discord : @_SupremeRakib#7358
 
 Email : md3021822@protonmail.com
 
-Facebook : https://www.facebook.com/RHTheBoy154/
+Facebook : https://www.facebook.com/Rx1rakib/
 
 Twitter : https://twitter.com/_supremerakib
 
-Instagram : https://www.instagram.com/supreme_rakib/
+Instagram : https://www.instagram.com/RZF_rakib/
 
 Pinterest : https://www.pinterest.com/HMTheBoy154
 
